@@ -9,4 +9,12 @@
  - Ngắm bến ninh kiểu ở sông hàn danang..
  - Đi một vòng danang ban đêm. 
    
-
+# Day 2 & 3 
+  - Dẫy ở bà nà và những bữa ăn đau thận 
+  - Phá đảo mấy cái gem thùng 
+  - Ngủ sớm... 
+# Day 4 
+  - Ở nhà coi Doreamon 
+  - Ra rạp coi Doreamon
+# Day 5 
+  - Vác vali lên đi về
